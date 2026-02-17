@@ -4,7 +4,7 @@
 
 🎓 Computer Science Student  
 💻 Passionate about coding & technology  
-🌏 Thailand  
+🌏 Krabi,Thailand  
 
 ---
 
